@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SaiTejaswiniVM!
+- 👀 I’m interested in music and arts.
+- 🌱 I’m currently learning HTML, CSS and Java
+- 💞️ I’m looking to collaborate on any apps or games
+- 📫 You can contact me here:
+- Email ID: saiteju.vm@gmail.com
+- Mobile No: +91 99406 85602
